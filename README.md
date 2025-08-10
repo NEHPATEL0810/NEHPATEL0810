@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @NEHPATEL0810
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-Email : nehp00417@gmail.com
+-
+- Email : nehp00417@gmail.com
         patelneh601@gmail.com
 
 Linkedin : www.linkedin.com/in/neh-patel-573a57287
